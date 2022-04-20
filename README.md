@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @JohnnySquidd
+- 👀 I’m interested in squirrels
